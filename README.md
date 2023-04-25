@@ -1,7 +1,3 @@
-**Ztryga/Ztryga** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
 "We are so used to chaos that we just sing our way to destruction"
 Life's great gift is a window into a world of reflections, to those who choose, to a universe perhaps.
 You see, philosophy, critical thinking, are the most refined forms of the great fusion of our greatest rationalities with our greatest insanities. However, the thoughts, reflections and raw ideas come from those who dare from the beginning to question what they do not understand, or in some cases, why they understand. Perhaps.
